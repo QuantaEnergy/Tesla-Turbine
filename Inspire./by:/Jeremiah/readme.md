@@ -1,0 +1,1 @@
+- [Amazing visualization of the boundary layer inside the tesla turbine! See the vortex!!](https://youtu.be/y3koAKGuHoY)
