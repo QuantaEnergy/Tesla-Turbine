@@ -1,1 +1,3 @@
 - [Amazing visualization of the boundary layer inside the tesla turbine! See the vortex!!](https://youtu.be/y3koAKGuHoY)
+- [Ground Breaking Renewable Energy System Using The Tesla Turbine](https://youtu.be/2pGxVvSizoE)
+- [Tesla Turbine Breaks Sound barrier! 95,000 RPM!](https://youtu.be/p3r2RvltByU)
