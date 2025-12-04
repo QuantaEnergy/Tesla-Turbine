@@ -1,0 +1,1 @@
+Make an extremely smooth Hygroscopic coding out of nanomaterials that will cause Steam and water molecules to adhere to the discs creating very thin but highly efficient boundary layers with zero slip at the surface! This is a simple but practical step for higher mechanical energy extraction and thermodynamic efficiency.
